@@ -1,0 +1,5 @@
+![WhatsApp Image 2024-06-21 at 20 11 16_dd68fac5](https://github.com/Vivek297/Newsly/assets/117395568/ee1a2600-ce6b-4a29-b99f-6ffed97f0583)
+![WhatsApp Image 2024-06-21 at 20 11 17_7bdcfafb](https://github.com/Vivek297/Newsly/assets/117395568/7cc6e8c5-b7fb-4e97-8839-df368a9cd882)
+![WhatsApp Image 2024-06-21 at 20 11 17_83ca9041](https://github.com/Vivek297/Newsly/assets/117395568/bbd043c2-a40c-4f79-952c-9eb5ed567b18)
+![WhatsApp Image 2024-06-21 at 20 11 17_dee46661](https://github.com/Vivek297/Newsly/assets/117395568/4a817206-cec3-41f3-8db3-4f3c5e34d7e9)
+![WhatsApp Image 2024-06-21 at 20 11 18_b0040d7c](https://github.com/Vivek297/Newsly/assets/117395568/dd57e1d8-1c8c-4cde-8eeb-16373e92d517)
